@@ -6,6 +6,6 @@
 -  How to reach me
 -Social
 -Facebook - www.facebook.com/charith.nuwantha.75
---instagram - www.instagram.com/00_kack_frost
+--instagram - www.instagram.com/00_jack_frost
 
 Email - charithnp99@gmail.com

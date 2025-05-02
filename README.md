@@ -4,7 +4,7 @@
 
 🚀 Computer Engineering undergrad at **General Sir John Kotelawala Defence University Sri Lanka**
 
-👾 Currently building cool stuff and growing my skillset—always open to collaborations!
+👾 Currently building cool stuff and growing my skillset — always open to collaborations!
 
 ---
 

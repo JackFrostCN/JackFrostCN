@@ -1,11 +1,15 @@
-- I’m Charith Nuwantha (@JackFrostCN)
-- Interested in Coding,computer hardware,arduino based projects,Networking and more...
-- I’m currently learning in General Sir John Kotelawala Defence University as computer engineering undergraduate.
-- I’m looking to collaborate on IT based activity.
+### Charith Nuwantha (@JackFrostCN) 🌨️
 
--  How to reach me
--Social
--Facebook - www.facebook.com/charith.nuwantha.75
--instagram - www.instagram.com/00_jack_frost
+🎮 **Coder** | 💻 **Hardware Enthusiast** | 🤖 **Arduino Projects** | 🌐 **Networking Buff** | 💻 **Web Application Developer**
 
-Email - charithnp99@gmail.com
+🚀 Computer Engineering undergrad at **General Sir John Kotelawala Defence University**
+👾 Currently vibing through IT-based projects and open to collaborations!
+
+---
+
+**Let’s Connect!**
+
+* 📱 **Facebook:** [@charith.nuwantha.75](https://www.facebook.com/charith.nuwantha.75)
+* 📸 **Instagram:** [@00\_jack\_frost](https://www.instagram.com/00_jack_frost)
+* 📧 **Email:** [charithnp99@gmail.com](mailto:charithnp99@gmail.com)
+

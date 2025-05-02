@@ -1,10 +1,10 @@
 ### Charith Nuwantha (@JackFrostCN) 🌨️
 
-🎮 **Coder** | 💻 **Hardware Enthusiast** | 🤖 **Arduino Projects** | 🌐 **Networking Buff** | 💻 **Web Application Developer** | 🎮 **Gamer**
+🎮 **Coder** | 💻 **Hardware Technician** | 💻 **Web App Developer** |🤖 **Arduino Projects** | 🛠️ **Tinkerer**  | 🎮 **Gamer**
 
 🚀 Computer Engineering undergrad at **General Sir John Kotelawala Defence University**
 
-👾 Currently vibing through IT-based projects and open to collaborations!
+👾 Currently building cool stuff and growing my skillset—always open to collaborations!
 
 ---
 

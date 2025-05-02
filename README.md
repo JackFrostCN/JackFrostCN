@@ -3,6 +3,7 @@
 🎮 **Coder** | 💻 **Hardware Enthusiast** | 🤖 **Arduino Projects** | 🌐 **Networking Buff** | 💻 **Web Application Developer** | 🎮 **Gamer**
 
 🚀 Computer Engineering undergrad at **General Sir John Kotelawala Defence University**
+
 👾 Currently vibing through IT-based projects and open to collaborations!
 
 ---

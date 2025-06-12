@@ -1,11 +1,11 @@
 ### Charith Nuwantha (@JackFrostCN) 🌨️
 
-🎮 **Coder** | 🛠️ **Hardware Technician** | 💻 **Web Dev** | 🤖 **Arduino Tinkerer** | 🎮 **Gamer**
+🎮 **Coder** | 🛠️ **Hardware Technician** | 💻 **Web Dev** | 🤖 **Arduino Tinkerer**
+🧠 **AI/ML Explorer** | 🎮 **Gamer**
 
 🎓 Computer Engineering @ **KDU, Sri Lanka**
 
 I build things, break stuff, and figure it out.
-
 Ping me if you’ve got something interesting.
 
 ---

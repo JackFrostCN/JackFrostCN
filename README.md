@@ -7,7 +7,7 @@
 
 I build things, break stuff, and figure it out.
 Ping me if you’ve got something interesting.
-
+(this bio is cringe af btw)
 ---
 
 **Links:**

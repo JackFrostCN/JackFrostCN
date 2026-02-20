@@ -4,7 +4,6 @@ Just an It person with ego
 
 🎓 Computer Engineer @ **KDU, Sri Lanka**
 
----
 ![6cb2cibgjk431](https://github.com/user-attachments/assets/969c5bcb-36f5-418f-bfb0-8faf080a57f3)
 
 
